@@ -84,9 +84,3 @@
 - [Dog Parks in Minneapolis](https://www.minneapolismn.gov/government/departments/parks/dog-parks/)  
 - [Local Pet Grooming & Veterinary Services](https://www.petgroomer.com/minneapolis-mn)
 
----
-
-Feel free to continue adding more categories or more links! It could be a work-in-progress, but you've got a great starting point. Let me know if you'd like help with more ideas or specific sections!
-
-
-
